@@ -1,0 +1,1 @@
+I'm a student with intermediate skills in HTML5, CSS, and JavaScript. You are also starting a YouTube channel to teach skills useful for college and the workplace, such as resume writing, research, and computer skills.
